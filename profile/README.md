@@ -6,7 +6,7 @@
 <h1 align="center">🇻🇳🏳️‍⚧️ Trap & Femboy Vietnam</h1>
 <p align="center"><i>Soft. Strong. Free to be.</i></p>
 
-# 🇻🇳🏳️‍⚧️ Trap & Femboy Vietnam
+# Trap & Femboy Vietnam
 
 **Trap & Femboy Vietnam** is a community-driven organization focused on supporting, connecting, and empowering feminine-presenting boys, femboys, gender-nonconforming people, and allies in Vietnam and the Vietnamese diaspora.
 
