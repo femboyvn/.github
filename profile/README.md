@@ -3,7 +3,7 @@
   <img src="https://github.com/user-attachments/assets/1e1d1ef0-1342-48ca-9501-5183d461e5d5" width="256" height="256" alt="logo" />
 </p>
 
-<h1 align="center">🇻🇳🏳️‍⚧️ Trap & Femboy Vietnam</h1>
+<h1 align="center">Trap & Femboy Vietnam</h1>
 <p align="center"><i>Soft. Strong. Free to be.</i></p>
 
 # Trap & Femboy Vietnam
